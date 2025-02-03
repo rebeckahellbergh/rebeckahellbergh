@@ -1,4 +1,4 @@
-## Hi there, I'm Rebecka 👋
+## Hi there 👋, I'm ✨ Rebecka ✨ - let's connect! 
 
 <!--
 **rebeckahellbergh/rebeckahellbergh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
